@@ -37,7 +37,7 @@
 ---
 
 ### 📫 Reach Me
-- Email: himayaranaweera@gmail.com  
+- Email: ranaweerahimaya052@gmail.com 
 - LinkedIn: [Himaya Ranaweera](www.linkedin.com/in/himaya-ranaweera-7389852b1)  
 - Portfolio: _coming soon_
 
