@@ -44,7 +44,7 @@
 ---
 
 ### 😄 Pronouns
-He / Him
+She / Her
 
 ---
 
